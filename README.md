@@ -2,7 +2,8 @@
 
 
 I'm a Mafioso yumeshipper and I'm a multifandom 
-      I love any fandom except (LSP,any problematic fandom that includes Incest .-)
+      I love any fandom except (LSP,any problematic fandom that includes Incest,
+      sometimes I hate qwel supporters or people who support the problematic people).
 
 
   <img src="Lonely Tree.png" alt="Lonely Tree.png">
