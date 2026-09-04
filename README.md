@@ -22,6 +22,8 @@ I'm a person that overthinks,
 and I get attached to someone close
 I'm shy  to approach new people.
 
+I get upset easily when treated wrong or ignored.
+bjti change moods immediately.
 
 I'm kind and also this account is for ponytown purposes!
 (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)
