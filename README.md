@@ -23,5 +23,19 @@ I get upset easily when treated wrong or ignored.
 to the point I cry sometimes whenever I feel envious to the person I'm attached too,
 but i change moods immediately.
 
-I'm kind and also this account is for ponytown purposes!
-(⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)
+
+
+<img src="Mafioso pfp.jpeg" alt="Mafioso pfp.jpeg">
+</p>
+
+
+--look my f/o !! <3
+
+this account is for PT ONLY.
+
+I love the support and followers given to this account I really appreciate it <3.
+
+
+IF I approach or whisper about how cool your skin is!
+that's the way I praise 
+IM JUST SHY OKK..
