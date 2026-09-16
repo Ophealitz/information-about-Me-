@@ -20,9 +20,17 @@ and I get attached to someone close
 I'm shy  to approach new people.
 
 I get upset easily when treated wrong or ignored.
-to the point I cry sometimes whenever I feel envious to the person I'm attached too,
-but i change moods immediately.
+to the point I cry sometimes 
+and yes it is rare for me to cry fully.
+Also for the way for doubles who has the same f/o as mine please be careful.
 
+if you fictionkin him I will be careful and nervous
+I do not WANT to make you uncomfortable.
+
+
+and yes I Overhink if THERES something wrong with my friend group.
+
+AND Yes I overreact if there's something wrong.
 
 
 <img src="Mafioso pfp.jpeg" alt="Mafioso pfp.jpeg">
