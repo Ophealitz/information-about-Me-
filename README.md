@@ -43,7 +43,10 @@ this account is for PT ONLY.
 
 I love the support and followers given to this account I really appreciate it <3.
 
+I want to have more friends but I'm shy sometimes.
 
-IF I approach or whisper about how cool your skin is!
-that's the way I praise 
-IM JUST SHY OKK..
+so find  a way to bmf!.
+
+
+closely I do not ignore people who are added I'm just Shy to approach 😨
+sometimes I whisper to them.
