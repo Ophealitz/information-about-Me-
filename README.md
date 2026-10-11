@@ -38,6 +38,10 @@ AND Yes I overreact if there's something wrong.
 
 
 --look my f/o !! <3
+ loved him ever since his rework of July 11th 2025. 🫶
+
+ I'm a SoftSharing mafioso yume 
+!
 
 this account is for PT ONLY.
 
