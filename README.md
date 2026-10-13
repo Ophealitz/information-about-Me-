@@ -31,6 +31,7 @@ I do not WANT to make you uncomfortable.
 and yes I Overhink if THERES something wrong with my friend group.
 
 AND Yes I overreact if there's something wrong.
+and yes I may have abandonment issues.
 
 
 <img src="Mafioso pfp.jpeg" alt="Mafioso pfp.jpeg">
